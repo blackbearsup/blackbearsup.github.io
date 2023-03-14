@@ -1,2 +1,2 @@
-# blackbearsup.github.io
+# Black Bear SUP
 www.blackbearsup.com
